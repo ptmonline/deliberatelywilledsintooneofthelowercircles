@@ -18,7 +18,7 @@ Love led us to one death. In the depths of Hell
   This was the piteous tale they stopped to tell.[35]</i>
 </p>
 
-Francesca further reports that she and Paolo yielded to their love when reading the story of the adultery between Lancelot and Guinevere in the Old French romance Lancelot du Lac. Francesca says, *"Galeotto fu 'l libro e chi lo scrisse"*.[36] The word *"Galeotto"* means *"pander"* but is also the Italian term for Gallehaut, who acted as an intermediary between Lancelot and Guinevere, encouraging them on to love. John Ciardi renders line 137 as *"That book, and he who wrote it, was a pander."*[37] Inspired by Dante, author Giovanni Boccaccio invoked the name Prencipe Galeotto in the alternative title to The Decameron, a 14th-century collection of novellas. The English poet John Keats, in his sonnet *"On a Dream,"* imagines what Dante does not give us, the point of view of Paolo:
+Francesca further reports that she and Paolo yielded to their love when reading the story of the adultery between Lancelot and Guinevere in the Old French romance Lancelot du Lac. Francesca says, *"Galeotto fu 'l libro e chi lo scrisse"*.[36] The word *"Galeotto"* means  *"pander"* but is also the Italian term for Gallehaut, who acted as an intermediary between Lancelot and Guinevere, encouraging them on to love. John Ciardi renders line 137 as *"That book, and he who wrote it, was a pander."*[37] Inspired by Dante, author Giovanni Boccaccio invoked the name Prencipe Galeotto in the alternative title to The Decameron, a 14th-century collection of novellas. The English poet John Keats, in his sonnet *"On a Dream,"* imagines what Dante does not give us, the point of view of Paolo:
 
 <p align="center">
 <i>... But to that second circle of sad hell,
