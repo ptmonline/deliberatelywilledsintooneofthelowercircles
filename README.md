@@ -26,7 +26,7 @@ Where 'mid the gust, the whirlwind, and the flaw
 Of rain and hail-stones, lovers need not tell
 Their sorrows. Pale were the sweet lips I saw,
 Pale were the lips I kiss'd, and fair the form
-I floated with, about that melancholy storm.[38]</i>
+I floated with, about that melancholy storm. [38]</i>
 </p>
 
-As he did at the end of Canto III, Dante – overcome by pity and anguish – describes his swoon: *"I fainted, as if I had met my death. / And then I fell as a dead body falls"*[39]
+As he did at the end of Canto III, Dante – overcome by pity and anguish – describes his swoon: *"I fainted, as if I had met my death. / And then I fell as a dead body falls"* [39]
